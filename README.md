@@ -1,0 +1,1 @@
+# totalna-masakra-bot
